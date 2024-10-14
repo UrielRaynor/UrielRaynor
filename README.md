@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ... VSC
 - 💞️ I’m looking to collaborate on ... proyectos personales
 - 📫 How to reach me ... mi correo es starcraft.2@hotmail.com
-- 😄 Pronouns: ... EL
+- 😄 Pronouns: ... malhumorado, sarcastico, impaciente, retraido
 - ⚡ Fun fact: ... Teorías de Conspiración, la astrofísica, vida extraterrestre, fantasmas, la teología y el Apocalipsis
 
 
